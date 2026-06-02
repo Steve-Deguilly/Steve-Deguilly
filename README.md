@@ -28,7 +28,7 @@ Ex-CDO d'une structure monégasque (6 ans au CODIR). Aujourd'hui freelance via *
 
 ### Travaillons ensemble
 
-- 🌐 Site : **[steve-deguilly.com]([url](https://steve-deguilly.com/))**
-- 📅 Réserver un échange (30 min) : **cal.com/steve-deguilly/30min**
-- 💼 LinkedIn : **linkedin.com/in/steve-deguilly**
+- 🌐 Site : **[steve-deguilly.com](https://steve-deguilly.com)**
+- 📅 Réserver un échange (30 min) : **[cal.com/steve-deguilly/30min](https://cal.com/steve-deguilly/30min)**
+- 💼 LinkedIn : **[linkedin.com/in/steve-deguilly](https://linkedin.com/in/steve-deguilly)**
 - 📍 Nice · Monaco · Sophia Antipolis
